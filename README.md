@@ -1,5 +1,3 @@
 ⊹₊˚‧︵‿₊୨ 𝒄𝒉𝒆𝒄𝒌 𝒔𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆 𝒃𝒆𝒇𝒐𝒓𝒆 𝒊𝒏𝒕𝒆𝒓𝒂𝒄𝒕𝒊𝒏𝒈 ୧₊‿︵‧˚₊⊹ 
-https://github.com/yukxiikkk/yukxiikkk/blob/main/8097725d99d0d0a7da73fb21e59b3e50%20(1).jpg 
-https://yukousova.straw.page/ 91a115e73b5017e4a0cd1e436328034f 
+https://yukousova.straw.page/  
 𝒔𝒊𝒈𝒏 𝒎𝒚 𝒂𝒕𝒂𝒃𝒐𝒐𝒌! https://yukxiikk.atabook.org/
-86551b982c0a1b40805eb82151d6e66a
